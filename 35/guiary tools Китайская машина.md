@@ -410,4 +410,14 @@ Build a voting machine using many micro:bits! In this project,a voter program is
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=guiary+tools+%D0%9A%D0%B8%D1%82%D0%B0%D0%B9%D1%81%D0%BA%D0%B0%D1%8F+%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D0%B0)
 
-{{links}}
+* [Дистрибьюторы оборудования](../32/%D0%94%D0%B8%D1%81%D1%82%D1%80%D0%B8%D0%B1%D1%8C%D1%8E%D1%82%D0%BE%D1%80%D1%8B%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F.md)
+
+* [ikoti Угольная шахта klipfontein crusher Южная Африка](../32/ikoti%20%D0%A3%D0%B3%D0%BE%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%88%D0%B0%D1%85%D1%82%D0%B0%20klipfontein%20crusher%20%D0%AE%D0%B6%D0%BD%D0%B0%D1%8F%20%D0%90%D1%84%D1%80%D0%B8%D0%BA%D0%B0.md)
+
+* [Дробилки используемые для руды рудника](../31/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%B8%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D1%83%D0%B5%D0%BC%D1%8B%D0%B5%20%D0%B4%D0%BB%D1%8F%20%D1%80%D1%83%D0%B4%D1%8B%20%D1%80%D1%83%D0%B4%D0%BD%D0%B8%D0%BA%D0%B0.md)
+
+* [Машина tseni za mill v kitay](../33/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20tseni%20za%20mill%20v%20kitay.md)
+
+* [Дизайн шаровой мельницы для kaolin in uae](../35/%D0%94%D0%B8%D0%B7%D0%B0%D0%B9%D0%BD%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B%20%D0%B4%D0%BB%D1%8F%20kaolin%20in%20uae.md)
+
+* [Головка и вал конусной дробилки](../34/%D0%93%D0%BE%D0%BB%D0%BE%D0%B2%D0%BA%D0%B0%20%D0%B8%20%D0%B2%D0%B0%D0%BB%20%D0%BA%D0%BE%D0%BD%D1%83%D1%81%D0%BD%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)

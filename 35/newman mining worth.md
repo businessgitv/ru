@@ -411,4 +411,14 @@ Yes,mining is worth it.In the same way that reading a book is worth it.In the sa
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=newman+mining+worth)
 
-{{links}}
+* [Горизонтальный шлифовальный станок Производитель Италия](../31/%D0%93%D0%BE%D1%80%D0%B8%D0%B7%D0%BE%D0%BD%D1%82%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%20%D0%98%D1%82%D0%B0%D0%BB%D0%B8%D1%8F.md)
+
+* [Характеристики шаровой мельницы цилиндр](../35/%D0%A5%D0%B0%D1%80%D0%B0%D0%BA%D1%82%D0%B5%D1%80%D0%B8%D1%81%D1%82%D0%B8%D0%BA%D0%B8%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B%20%D1%86%D0%B8%D0%BB%D0%B8%D0%BD%D0%B4%D1%80.md)
+
+* [Щековая дробилка pe 1200 8 84 31500 Цена](../31/%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20pe%201200%208%2084%2031500%20%D0%A6%D0%B5%D0%BD%D0%B0.md)
+
+* [Газоотбойные дробилки](../32/%D0%93%D0%B0%D0%B7%D0%BE%D0%BE%D1%82%D0%B1%D0%BE%D0%B9%D0%BD%D1%8B%D0%B5%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [Каменная дробилка di ialy](../31/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20di%20ialy.md)
+
+* [Станок для шлифования балласта](../35/%D0%A1%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20%D0%B4%D0%BB%D1%8F%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%B1%D0%B0%D0%BB%D0%BB%D0%B0%D1%81%D1%82%D0%B0.md)

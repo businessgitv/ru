@@ -411,4 +411,14 @@ Gold Mining Washing Plants Mining Washing Plants Supplier XSM is a global mining
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=robo+sand+mining+machine)
 
-{{links}}
+* [Дробилка откачивания вала маховика](../31/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%BE%D1%82%D0%BA%D0%B0%D1%87%D0%B8%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%B2%D0%B0%D0%BB%D0%B0%20%D0%BC%D0%B0%D1%85%D0%BE%D0%B2%D0%B8%D0%BA%D0%B0.md)
+
+* [Тип ударной дробилки в цементе binani в Раджастане](../33/%D0%A2%D0%B8%D0%BF%20%D1%83%D0%B4%D0%B0%D1%80%D0%BD%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%B2%20%D1%86%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%D0%B5%20binani%20%D0%B2%20%D0%A0%D0%B0%D0%B4%D0%B6%D0%B0%D1%81%D1%82%D0%B0%D0%BD%D0%B5.md)
+
+* [karara coarse grinding mills](../35/karara%20coarse%20grinding%20mills.md)
+
+* [Диаграмма процесса технологического процесса гранулирования](../32/%D0%94%D0%B8%D0%B0%D0%B3%D1%80%D0%B0%D0%BC%D0%BC%D0%B0%20%D0%BF%D1%80%D0%BE%D1%86%D0%B5%D1%81%D1%81%D0%B0%20%D1%82%D0%B5%D1%85%D0%BD%D0%BE%D0%BB%D0%BE%D0%B3%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B3%D0%BE%20%D0%BF%D1%80%D0%BE%D1%86%D0%B5%D1%81%D1%81%D0%B0%20%D0%B3%D1%80%D0%B0%D0%BD%D1%83%D0%BB%D0%B8%D1%80%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F.md)
+
+* [Список выпущенных от kspcb для каменных дробильных установок в Карнатаке](../35/%D0%A1%D0%BF%D0%B8%D1%81%D0%BE%D0%BA%20%D0%B2%D1%8B%D0%BF%D1%83%D1%89%D0%B5%D0%BD%D0%BD%D1%8B%D1%85%20%D0%BE%D1%82%20kspcb%20%D0%B4%D0%BB%D1%8F%20%D0%BA%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D1%8B%D1%85%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D1%85%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BE%D0%BA%20%D0%B2%20%D0%9A%D0%B0%D1%80%D0%BD%D0%B0%D1%82%D0%B0%D0%BA%D0%B5.md)
+
+* [Горнодобывающие шахты almora](../34/%D0%93%D0%BE%D1%80%D0%BD%D0%BE%D0%B4%D0%BE%D0%B1%D1%8B%D0%B2%D0%B0%D1%8E%D1%89%D0%B8%D0%B5%20%D1%88%D0%B0%D1%85%D1%82%D1%8B%20almora.md)

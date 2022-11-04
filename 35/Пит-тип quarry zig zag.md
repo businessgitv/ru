@@ -410,4 +410,14 @@ The Zig Zag Man book.Read reviews from world's largest community for readers.Sta
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9F%D0%B8%D1%82-%D1%82%D0%B8%D0%BF+quarry+zig+zag)
 
-{{links}}
+* [Мобильная кокс-дробилка](../31/%D0%9C%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D0%BA%D0%BE%D0%BA%D1%81-%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Конвейерный конвейер для медных рудников konkola](../31/%D0%9A%D0%BE%D0%BD%D0%B2%D0%B5%D0%B9%D0%B5%D1%80%D0%BD%D1%8B%D0%B9%20%D0%BA%D0%BE%D0%BD%D0%B2%D0%B5%D0%B9%D0%B5%D1%80%20%D0%B4%D0%BB%D1%8F%20%D0%BC%D0%B5%D0%B4%D0%BD%D1%8B%D1%85%20%D1%80%D1%83%D0%B4%D0%BD%D0%B8%D0%BA%D0%BE%D0%B2%20konkola.md)
+
+* [Роторный наконечник дробилки](../32/%D0%A0%D0%BE%D1%82%D0%BE%D1%80%D0%BD%D1%8B%D0%B9%20%D0%BD%D0%B0%D0%BA%D0%BE%D0%BD%D0%B5%D1%87%D0%BD%D0%B8%D0%BA%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [Процедура запуска щековой дробилки](../34/%D0%9F%D1%80%D0%BE%D1%86%D0%B5%D0%B4%D1%83%D1%80%D0%B0%20%D0%B7%D0%B0%D0%BF%D1%83%D1%81%D0%BA%D0%B0%20%D1%89%D0%B5%D0%BA%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [mesin roll crusher fb 05 辊 式 破碎 机](../31/mesin%20roll%20crusher%20fb%2005%20%E8%BE%8A%20%E5%BC%8F%20%E7%A0%B4%E7%A2%8E%20%E6%9C%BA.md)
+
+* [Поставщик запасных частей для угольной мельницы](../34/%D0%9F%D0%BE%D1%81%D1%82%D0%B0%D0%B2%D1%89%D0%B8%D0%BA%20%D0%B7%D0%B0%D0%BF%D0%B0%D1%81%D0%BD%D1%8B%D1%85%20%D1%87%D0%B0%D1%81%D1%82%D0%B5%D0%B9%20%D0%B4%D0%BB%D1%8F%20%D1%83%D0%B3%D0%BE%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B.md)

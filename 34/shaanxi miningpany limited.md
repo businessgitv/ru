@@ -330,4 +330,14 @@ Revoke licences of Shaanxi Mining Ghana Ltd,partners.A group known as the Concer
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=shaanxi+miningpany+limited)
 
-{{links}}
+* [Как сделать доломит](../32/%D0%9A%D0%B0%D0%BA%20%D1%81%D0%B4%D0%B5%D0%BB%D0%B0%D1%82%D1%8C%20%D0%B4%D0%BE%D0%BB%D0%BE%D0%BC%D0%B8%D1%82.md)
+
+* [Тамбанг Батубара Берау Уголь](../32/%D0%A2%D0%B0%D0%BC%D0%B1%D0%B0%D0%BD%D0%B3%20%D0%91%D0%B0%D1%82%D1%83%D0%B1%D0%B0%D1%80%D0%B0%20%D0%91%D0%B5%D1%80%D0%B0%D1%83%20%D0%A3%D0%B3%D0%BE%D0%BB%D1%8C.md)
+
+* [Глядя на дробильную машину в городе kungming chine](../35/%D0%93%D0%BB%D1%8F%D0%B4%D1%8F%20%D0%BD%D0%B0%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%83%D1%8E%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%83%20%D0%B2%20%D0%B3%D0%BE%D1%80%D0%BE%D0%B4%D0%B5%20kungming%20chine.md)
+
+* [Преимущество вертикальной мельницы для измельчения цемента над шаровой мельницей](../34/%D0%9F%D1%80%D0%B5%D0%B8%D0%BC%D1%83%D1%89%D0%B5%D1%81%D1%82%D0%B2%D0%BE%20%D0%B2%D0%B5%D1%80%D1%82%D0%B8%D0%BA%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B%20%D0%B4%D0%BB%D1%8F%20%D0%B8%D0%B7%D0%BC%D0%B5%D0%BB%D1%8C%D1%87%D0%B5%D0%BD%D0%B8%D1%8F%20%D1%86%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%D0%B0%20%D0%BD%D0%B0%D0%B4%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B5%D0%B9.md)
+
+* [Конвейерный ремень железной руды](../31/%D0%9A%D0%BE%D0%BD%D0%B2%D0%B5%D0%B9%D0%B5%D1%80%D0%BD%D1%8B%D0%B9%20%D1%80%D0%B5%D0%BC%D0%B5%D0%BD%D1%8C%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B9%20%D1%80%D1%83%D0%B4%D1%8B.md)
+
+* [Самые эффективные способы добычи железной руды](../32/%D0%A1%D0%B0%D0%BC%D1%8B%D0%B5%20%D1%8D%D1%84%D1%84%D0%B5%D0%BA%D1%82%D0%B8%D0%B2%D0%BD%D1%8B%D0%B5%20%D1%81%D0%BF%D0%BE%D1%81%D0%BE%D0%B1%D1%8B%20%D0%B4%D0%BE%D0%B1%D1%8B%D1%87%D0%B8%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B9%20%D1%80%D1%83%D0%B4%D1%8B.md)

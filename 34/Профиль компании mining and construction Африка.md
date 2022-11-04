@@ -411,4 +411,14 @@ run swim run.2 km run then head first into surf and swim out to 1km point.which 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9F%D1%80%D0%BE%D1%84%D0%B8%D0%BB%D1%8C+%D0%BA%D0%BE%D0%BC%D0%BF%D0%B0%D0%BD%D0%B8%D0%B8+mining+and+construction+%D0%90%D1%84%D1%80%D0%B8%D0%BA%D0%B0)
 
-{{links}}
+* [Четырехвалковая дробилка gundlach](../34/%D0%A7%D0%B5%D1%82%D1%8B%D1%80%D0%B5%D1%85%D0%B2%D0%B0%D0%BB%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20gundlach.md)
+
+* [Мраморный рубиновый процесс](../31/%D0%9C%D1%80%D0%B0%D0%BC%D0%BE%D1%80%D0%BD%D1%8B%D0%B9%20%D1%80%D1%83%D0%B1%D0%B8%D0%BD%D0%BE%D0%B2%D1%8B%D0%B9%20%D0%BF%D1%80%D0%BE%D1%86%D0%B5%D1%81%D1%81.md)
+
+* [Используемая установка для мобильных ударных дробилок](../34/%D0%98%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D1%83%D0%B5%D0%BC%D0%B0%D1%8F%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BC%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D1%85%20%D1%83%D0%B4%D0%B0%D1%80%D0%BD%D1%8B%D1%85%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BE%D0%BA.md)
+
+* [Саудовская Аравийская горная компания mgbm jeddah](../32/%D0%A1%D0%B0%D1%83%D0%B4%D0%BE%D0%B2%D1%81%D0%BA%D0%B0%D1%8F%20%D0%90%D1%80%D0%B0%D0%B2%D0%B8%D0%B9%D1%81%D0%BA%D0%B0%D1%8F%20%D0%B3%D0%BE%D1%80%D0%BD%D0%B0%D1%8F%20%D0%BA%D0%BE%D0%BC%D0%BF%D0%B0%D0%BD%D0%B8%D1%8F%20mgbm%20jeddah.md)
+
+* [Тип оборудования Гипсовая штукатурка в Нигерии](../34/%D0%A2%D0%B8%D0%BF%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%93%D0%B8%D0%BF%D1%81%D0%BE%D0%B2%D0%B0%D1%8F%20%D1%88%D1%82%D1%83%D0%BA%D0%B0%D1%82%D1%83%D1%80%D0%BA%D0%B0%20%D0%B2%20%D0%9D%D0%B8%D0%B3%D0%B5%D1%80%D0%B8%D0%B8.md)
+
+* [Системы контроля давления mps](../33/%D0%A1%D0%B8%D1%81%D1%82%D0%B5%D0%BC%D1%8B%20%D0%BA%D0%BE%D0%BD%D1%82%D1%80%D0%BE%D0%BB%D1%8F%20%D0%B4%D0%B0%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F%20mps.md)

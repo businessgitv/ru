@@ -411,4 +411,14 @@ CODIGOS DE ACTIVIDADdocx Extracción de piedra arena arcillas cal yeso caolín y
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=maquinaria+para+la+eand+traccion+de+yeso)
 
-{{links}}
+* [Раймонд Милль для naturale zeolite](../35/%D0%A0%D0%B0%D0%B9%D0%BC%D0%BE%D0%BD%D0%B4%20%D0%9C%D0%B8%D0%BB%D0%BB%D1%8C%20%D0%B4%D0%BB%D1%8F%20naturale%20zeolite.md)
+
+* [Портативная дробилка oman для продажи](../31/%D0%9F%D0%BE%D1%80%D1%82%D0%B0%D1%82%D0%B8%D0%B2%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20oman%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8.md)
+
+* [Объемная потеря с дроблением гравия](../32/%D0%9E%D0%B1%D1%8A%D0%B5%D0%BC%D0%BD%D0%B0%D1%8F%20%D0%BF%D0%BE%D1%82%D0%B5%D1%80%D1%8F%20%D1%81%20%D0%B4%D1%80%D0%BE%D0%B1%D0%BB%D0%B5%D0%BD%D0%B8%D0%B5%D0%BC%20%D0%B3%D1%80%D0%B0%D0%B2%D0%B8%D1%8F.md)
+
+* [Золотодобывающие инструменты в США в 1960-х годах](../31/%D0%97%D0%BE%D0%BB%D0%BE%D1%82%D0%BE%D0%B4%D0%BE%D0%B1%D1%8B%D0%B2%D0%B0%D1%8E%D1%89%D0%B8%D0%B5%20%D0%B8%D0%BD%D1%81%D1%82%D1%80%D1%83%D0%BC%D0%B5%D0%BD%D1%82%D1%8B%20%D0%B2%20%D0%A1%D0%A8%D0%90%20%D0%B2%201960-%D1%85%20%D0%B3%D0%BE%D0%B4%D0%B0%D1%85.md)
+
+* [Щековая дробилка sbm extec](../35/%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20sbm%20extec.md)
+
+* [Сломанная голова Сколько часов в дробильном камне](../34/%D0%A1%D0%BB%D0%BE%D0%BC%D0%B0%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B3%D0%BE%D0%BB%D0%BE%D0%B2%D0%B0%20%D0%A1%D0%BA%D0%BE%D0%BB%D1%8C%D0%BA%D0%BE%20%D1%87%D0%B0%D1%81%D0%BE%D0%B2%20%D0%B2%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%BE%D0%BC%20%D0%BA%D0%B0%D0%BC%D0%BD%D0%B5.md)
