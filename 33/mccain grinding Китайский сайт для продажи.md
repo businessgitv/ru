@@ -411,4 +411,14 @@ The new grinding plant,a "semi finish grinding system",essentially com prises th
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=mccain+grinding+%D0%9A%D0%B8%D1%82%D0%B0%D0%B9%D1%81%D0%BA%D0%B8%D0%B9+%D1%81%D0%B0%D0%B9%D1%82+%D0%B4%D0%BB%D1%8F+%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8)
 
-{{links}}
+* [Горное золото в Зимбабве](../35/%D0%93%D0%BE%D1%80%D0%BD%D0%BE%D0%B5%20%D0%B7%D0%BE%D0%BB%D0%BE%D1%82%D0%BE%20%D0%B2%20%D0%97%D0%B8%D0%BC%D0%B1%D0%B0%D0%B1%D0%B2%D0%B5.md)
+
+* [Конструкция шарового мельница](../35/%D0%9A%D0%BE%D0%BD%D1%81%D1%82%D1%80%D1%83%D0%BA%D1%86%D0%B8%D1%8F%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B3%D0%BE%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0.md)
+
+* [Проблемы с шаровой мельницю улучшают выход продукции](../32/%D0%9F%D1%80%D0%BE%D0%B1%D0%BB%D0%B5%D0%BC%D1%8B%20%D1%81%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8E%20%D1%83%D0%BB%D1%83%D1%87%D1%88%D0%B0%D1%8E%D1%82%20%D0%B2%D1%8B%D1%85%D0%BE%D0%B4%20%D0%BF%D1%80%D0%BE%D0%B4%D1%83%D0%BA%D1%86%D0%B8%D0%B8.md)
+
+* [Стоимость угля](../31/%D0%A1%D1%82%D0%BE%D0%B8%D0%BC%D0%BE%D1%81%D1%82%D1%8C%20%D1%83%D0%B3%D0%BB%D1%8F.md)
+
+* [Щековая дробилка kleemann mc110z для продажи](../34/%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20kleemann%20mc110z%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8.md)
+
+* [Мобильная шаровая мельница](../33/%D0%9C%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0.md)

@@ -411,4 +411,14 @@ lishan oxide mill batsinstitutions.Technology Welcome to SF Battery.Oxide Manufa
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=lishan+for+ball+millplant)
 
-{{links}}
+* [Функция третичной шаровой мельницы](../31/%D0%A4%D1%83%D0%BD%D0%BA%D1%86%D0%B8%D1%8F%20%D1%82%D1%80%D0%B5%D1%82%D0%B8%D1%87%D0%BD%D0%BE%D0%B9%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B.md)
+
+* [Производство бетонных дробилок samac](../35/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%BE%20%D0%B1%D0%B5%D1%82%D0%BE%D0%BD%D0%BD%D1%8B%D1%85%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BE%D0%BA%20samac.md)
+
+* [Гравитационное разделение хвостов из меди и цинка](../33/%D0%93%D1%80%D0%B0%D0%B2%D0%B8%D1%82%D0%B0%D1%86%D0%B8%D0%BE%D0%BD%D0%BD%D0%BE%D0%B5%20%D1%80%D0%B0%D0%B7%D0%B4%D0%B5%D0%BB%D0%B5%D0%BD%D0%B8%D0%B5%20%D1%85%D0%B2%D0%BE%D1%81%D1%82%D0%BE%D0%B2%20%D0%B8%D0%B7%20%D0%BC%D0%B5%D0%B4%D0%B8%20%D0%B8%20%D1%86%D0%B8%D0%BD%D0%BA%D0%B0.md)
+
+* [rc boat surge crusher](../32/rc%20boat%20surge%20crusher.md)
+
+* [Решение construc Таблицы bullock gold mining](../35/%D0%A0%D0%B5%D1%88%D0%B5%D0%BD%D0%B8%D0%B5%20construc%20%D0%A2%D0%B0%D0%B1%D0%BB%D0%B8%D1%86%D1%8B%20bullock%20gold%20mining.md)
+
+* [Что такое 2 процесса для раздавливания титана](../33/%D0%A7%D1%82%D0%BE%20%D1%82%D0%B0%D0%BA%D0%BE%D0%B5%202%20%D0%BF%D1%80%D0%BE%D1%86%D0%B5%D1%81%D1%81%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D1%80%D0%B0%D0%B7%D0%B4%D0%B0%D0%B2%D0%BB%D0%B8%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D1%82%D0%B8%D1%82%D0%B0%D0%BD%D0%B0.md)

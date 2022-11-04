@@ -411,4 +411,14 @@ The welfare impact of small scale mining in. SpringerLink.Oct 24,2012 · Yakubu 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%A3%D0%B7%D0%B5%D0%BB+%D0%BF%D0%BE+%D0%BF%D0%B5%D1%80%D0%B5%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B5+%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B9+%D1%80%D1%83%D0%B4%D1%8B+smal)
 
-{{links}}
+* [Соединенные Штаты Лоуэрсвилл Золотая шахта](../31/%D0%A1%D0%BE%D0%B5%D0%B4%D0%B8%D0%BD%D0%B5%D0%BD%D0%BD%D1%8B%D0%B5%20%D0%A8%D1%82%D0%B0%D1%82%D1%8B%20%D0%9B%D0%BE%D1%83%D1%8D%D1%80%D1%81%D0%B2%D0%B8%D0%BB%D0%BB%20%D0%97%D0%BE%D0%BB%D0%BE%D1%82%D0%B0%D1%8F%20%D1%88%D0%B0%D1%85%D1%82%D0%B0.md)
+
+* [Боксит сокрушительный Южная Африка](../33/%D0%91%D0%BE%D0%BA%D1%81%D0%B8%D1%82%20%D1%81%D0%BE%D0%BA%D1%80%D1%83%D1%88%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%AE%D0%B6%D0%BD%D0%B0%D1%8F%20%D0%90%D1%84%D1%80%D0%B8%D0%BA%D0%B0.md)
+
+* [Горнодобывающие горные дробилки](../32/%D0%93%D0%BE%D1%80%D0%BD%D0%BE%D0%B4%D0%BE%D0%B1%D1%8B%D0%B2%D0%B0%D1%8E%D1%89%D0%B8%D0%B5%20%D0%B3%D0%BE%D1%80%D0%BD%D1%8B%D0%B5%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [magic mill iii plus model 100 Руководство](../34/magic%20mill%20iii%20plus%20model%20100%20%D0%A0%D1%83%D0%BA%D0%BE%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%BE.md)
+
+* [Продукция intext post inurl sell lead](../34/%D0%9F%D1%80%D0%BE%D0%B4%D1%83%D0%BA%D1%86%D0%B8%D1%8F%20intext%20post%20inurl%20sell%20lead.md)
+
+* [Производители щековой дроби серии pe](../31/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D0%B8%20%D1%89%D0%B5%D0%BA%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%20%D1%81%D0%B5%D1%80%D0%B8%D0%B8%20pe.md)

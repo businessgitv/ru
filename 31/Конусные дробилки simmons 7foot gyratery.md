@@ -410,4 +410,14 @@ Spar Part Symon Crusher.Cone Crusher Parts.Premium Replacement Cone Crusher Part
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9A%D0%BE%D0%BD%D1%83%D1%81%D0%BD%D1%8B%D0%B5+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8+simmons+7foot+gyratery)
 
-{{links}}
+* [Дробильные установки серии y серии sbm](../34/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B8%20%D1%81%D0%B5%D1%80%D0%B8%D0%B8%20y%20%D1%81%D0%B5%D1%80%D0%B8%D0%B8%20sbm.md)
+
+* [Производители кирпичной дробилки в Пенджабе](../32/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D0%B8%20%D0%BA%D0%B8%D1%80%D0%BF%D0%B8%D1%87%D0%BD%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%B2%20%D0%9F%D0%B5%D0%BD%D0%B4%D0%B6%D0%B0%D0%B1%D0%B5.md)
+
+* [Более экономичная челюсть или ударная дробилка Тон](../35/%D0%91%D0%BE%D0%BB%D0%B5%D0%B5%20%D1%8D%D0%BA%D0%BE%D0%BD%D0%BE%D0%BC%D0%B8%D1%87%D0%BD%D0%B0%D1%8F%20%D1%87%D0%B5%D0%BB%D1%8E%D1%81%D1%82%D1%8C%20%D0%B8%D0%BB%D0%B8%20%D1%83%D0%B4%D0%B0%D1%80%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%A2%D0%BE%D0%BD.md)
+
+* [box flats coal mine qld](../31/box%20flats%20coal%20mine%20qld.md)
+
+* [decoors mining corp](../31/decoors%20mining%20corp.md)
+
+* [График обработки и подготовки угля](../32/%D0%93%D1%80%D0%B0%D1%84%D0%B8%D0%BA%20%D0%BE%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B8%20%D0%B8%20%D0%BF%D0%BE%D0%B4%D0%B3%D0%BE%D1%82%D0%BE%D0%B2%D0%BA%D0%B8%20%D1%83%D0%B3%D0%BB%D1%8F.md)

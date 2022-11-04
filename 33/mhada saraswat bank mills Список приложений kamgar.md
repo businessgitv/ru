@@ -250,4 +250,14 @@ MHADA Mill Workers lottery 2018 Winner List,MHADA mill workers lottery list sara
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=mhada+saraswat+bank+mills+%D0%A1%D0%BF%D0%B8%D1%81%D0%BE%D0%BA+%D0%BF%D1%80%D0%B8%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B9+kamgar)
 
-{{links}}
+* [Фрезерный станок nsm-2v](../34/%D0%A4%D1%80%D0%B5%D0%B7%D0%B5%D1%80%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20nsm-2v.md)
+
+* [Технологическая схема потока подачи](../35/%D0%A2%D0%B5%D1%85%D0%BD%D0%BE%D0%BB%D0%BE%D0%B3%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%B0%D1%8F%20%D1%81%D1%85%D0%B5%D0%BC%D0%B0%20%D0%BF%D0%BE%D1%82%D0%BE%D0%BA%D0%B0%20%D0%BF%D0%BE%D0%B4%D0%B0%D1%87%D0%B8.md)
+
+* [Вкладка Дробилка](../35/%D0%92%D0%BA%D0%BB%D0%B0%D0%B4%D0%BA%D0%B0%20%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Машины для бетонной отделки bidwell для продажи](../35/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D1%8B%20%D0%B4%D0%BB%D1%8F%20%D0%B1%D0%B5%D1%82%D0%BE%D0%BD%D0%BD%D0%BE%D0%B9%20%D0%BE%D1%82%D0%B4%D0%B5%D0%BB%D0%BA%D0%B8%20bidwell%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8.md)
+
+* [Малогабаритный штамповочный станок](../33/%D0%9C%D0%B0%D0%BB%D0%BE%D0%B3%D0%B0%D0%B1%D0%B0%D1%80%D0%B8%D1%82%D0%BD%D1%8B%D0%B9%20%D1%88%D1%82%D0%B0%D0%BC%D0%BF%D0%BE%D0%B2%D0%BE%D1%87%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA.md)
+
+* [Рок-дробилка украдена](../32/%D0%A0%D0%BE%D0%BA-%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D1%83%D0%BA%D1%80%D0%B0%D0%B4%D0%B5%D0%BD%D0%B0.md)

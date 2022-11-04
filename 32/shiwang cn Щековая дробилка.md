@@ -320,4 +320,14 @@ Jaw Crusher Pex 250 X 1200 Price kaubic.jaw crusher pex 250 x 1200 price jaw cru
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=shiwang+cn+%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0)
 
-{{links}}
+* [Железорудная шлифовка грубая](../31/%D0%96%D0%B5%D0%BB%D0%B5%D0%B7%D0%BE%D1%80%D1%83%D0%B4%D0%BD%D0%B0%D1%8F%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%BA%D0%B0%20%D0%B3%D1%80%D1%83%D0%B1%D0%B0%D1%8F.md)
+
+* [Углеродная дробилка Порошковая сетка](../35/%D0%A3%D0%B3%D0%BB%D0%B5%D1%80%D0%BE%D0%B4%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%9F%D0%BE%D1%80%D0%BE%D1%88%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D1%81%D0%B5%D1%82%D0%BA%D0%B0.md)
+
+* [Принцип работы двигателя шаровой мельницы pdf](../35/%D0%9F%D1%80%D0%B8%D0%BD%D1%86%D0%B8%D0%BF%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D1%8B%20%D0%B4%D0%B2%D0%B8%D0%B3%D0%B0%D1%82%D0%B5%D0%BB%D1%8F%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B%20pdf.md)
+
+* [Станок для шлифования крахмала](../31/%D0%A1%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20%D0%B4%D0%BB%D1%8F%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%BA%D1%80%D0%B0%D1%85%D0%BC%D0%B0%D0%BB%D0%B0.md)
+
+* [Схема шлифовального станка](../33/%D0%A1%D1%85%D0%B5%D0%BC%D0%B0%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B3%D0%BE%20%D1%81%D1%82%D0%B0%D0%BD%D0%BA%D0%B0.md)
+
+* [Горная карьерная дробилка в Замбии](../33/%D0%93%D0%BE%D1%80%D0%BD%D0%B0%D1%8F%20%D0%BA%D0%B0%D1%80%D1%8C%D0%B5%D1%80%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B2%20%D0%97%D0%B0%D0%BC%D0%B1%D0%B8%D0%B8.md)

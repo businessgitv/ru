@@ -411,4 +411,14 @@ Aug 31,2015 · Vancouver,British Columbia (Newsfile Corp. August 31,2015) Jaxon
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=decoors+mining+corp)
 
-{{links}}
+* [lineage 2 Династическая дробилка](../32/lineage%202%20%D0%94%D0%B8%D0%BD%D0%B0%D1%81%D1%82%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Каменное рудник Айдахо Мел](../34/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%BE%D0%B5%20%D1%80%D1%83%D0%B4%D0%BD%D0%B8%D0%BA%20%D0%90%D0%B9%D0%B4%D0%B0%D1%85%D0%BE%20%D0%9C%D0%B5%D0%BB.md)
+
+* [votator vertical de 12 mil libras](../31/votator%20vertical%20de%2012%20mil%20libras.md)
+
+* [ppt-файл каменного дробильного завода](../34/ppt-%D1%84%D0%B0%D0%B9%D0%BB%20%D0%BA%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4%D0%B0.md)
+
+* [Электрический sandert для bupping](../31/%D0%AD%D0%BB%D0%B5%D0%BA%D1%82%D1%80%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%B8%D0%B9%20sandert%20%D0%B4%D0%BB%D1%8F%20bupping.md)
+
+* [li ne дробилки в Индии](../35/li%20ne%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%B8%D0%B8.md)

@@ -411,4 +411,14 @@ minya машина для дробления запасных частейэта
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9C%D0%B0%D0%BB%D0%B0%D1%8F+%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D0%B0+%D0%B4%D0%BB%D1%8F+%D0%B4%D1%80%D0%BE%D0%B1%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F+%D0%BA%D0%B0%D0%BC%D0%BD%D0%B5%D0%B9+uk)
 
-{{links}}
+* [Оборудование для переработки железного порошка из мельницы](../32/%D0%9E%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D0%B5%D1%80%D0%B5%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B8%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%BF%D0%BE%D1%80%D0%BE%D1%88%D0%BA%D0%B0%20%D0%B8%D0%B7%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B.md)
+
+* [t t Цена карьера](../33/t%20t%20%D0%A6%D0%B5%D0%BD%D0%B0%20%D0%BA%D0%B0%D1%80%D1%8C%D0%B5%D1%80%D0%B0.md)
+
+* [Регулировка подающей трубки дробилки vsi](../32/%D0%A0%D0%B5%D0%B3%D1%83%D0%BB%D0%B8%D1%80%D0%BE%D0%B2%D0%BA%D0%B0%20%D0%BF%D0%BE%D0%B4%D0%B0%D1%8E%D1%89%D0%B5%D0%B9%20%D1%82%D1%80%D1%83%D0%B1%D0%BA%D0%B8%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20vsi.md)
+
+* [Схематическая схема процесса производства стали](../32/%D0%A1%D1%85%D0%B5%D0%BC%D0%B0%D1%82%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%B0%D1%8F%20%D1%81%D1%85%D0%B5%D0%BC%D0%B0%20%D0%BF%D1%80%D0%BE%D1%86%D0%B5%D1%81%D1%81%D0%B0%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%B0%20%D1%81%D1%82%D0%B0%D0%BB%D0%B8.md)
+
+* [Новая гидравлическая конусная дробилка](../31/%D0%9D%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B3%D0%B8%D0%B4%D1%80%D0%B0%D0%B2%D0%BB%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%B0%D1%8F%20%D0%BA%D0%BE%D0%BD%D1%83%D1%81%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Подготовка zro2 с использованием фрезерования шаров](../33/%D0%9F%D0%BE%D0%B4%D0%B3%D0%BE%D1%82%D0%BE%D0%B2%D0%BA%D0%B0%20zro2%20%D1%81%20%D0%B8%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%D0%BC%20%D1%84%D1%80%D0%B5%D0%B7%D0%B5%D1%80%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2.md)

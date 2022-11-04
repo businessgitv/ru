@@ -360,4 +360,14 @@ f 15 на даный момент уже устаревшие машины.В с
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=ppt+%D1%82%D0%B8%D0%BF%D0%B0+%D1%81%D0%BE%D0%B2%D0%BE%D0%BA%D1%83%D0%BF%D0%BD%D0%BE%D1%81%D1%82%D0%B8+%D0%B2+%D0%A1%D0%B0%D1%83%D0%B4%D0%BE%D0%B2%D1%81%D0%BA%D0%BE%D0%B9+%D0%90%D1%80%D0%B0%D0%B2%D0%B8%D0%B8+%D0%A1%D0%B0%D1%83%D0%B4%D0%BE%D0%B2%D1%81%D0%BA%D0%B0%D1%8F+%D0%90%D1%80%D0%B0%D0%B2%D0%B8%D1%8F)
 
-{{links}}
+* [Малогабаритный завод по переработке железной руды](../35/%D0%9C%D0%B0%D0%BB%D0%BE%D0%B3%D0%B0%D0%B1%D0%B0%D1%80%D0%B8%D1%82%D0%BD%D1%8B%D0%B9%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4%20%D0%BF%D0%BE%20%D0%BF%D0%B5%D1%80%D0%B5%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B5%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B9%20%D1%80%D1%83%D0%B4%D1%8B.md)
+
+* [Принцип работы дробилки pcl](../31/%D0%9F%D1%80%D0%B8%D0%BD%D1%86%D0%B8%D0%BF%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D1%8B%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20pcl.md)
+
+* [pasir dan batu mesin crusher](../34/pasir%20dan%20batu%20mesin%20crusher.md)
+
+* [Магнитный сепаратор дробилки](../35/%D0%9C%D0%B0%D0%B3%D0%BD%D0%B8%D1%82%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B5%D0%BF%D0%B0%D1%80%D0%B0%D1%82%D0%BE%D1%80%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [Сайты с горными работами](../33/%D0%A1%D0%B0%D0%B9%D1%82%D1%8B%20%D1%81%20%D0%B3%D0%BE%D1%80%D0%BD%D1%8B%D0%BC%D0%B8%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%B0%D0%BC%D0%B8.md)
+
+* [harga grinder ag](../32/harga%20grinder%20ag.md)

@@ -411,4 +411,14 @@ como se usa el mineral feldespato.Feldespato Ventanas al Universo Windows to the
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0+%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B3%D0%BE+%D1%86%D0%B5%D0%BD%D1%82%D1%80%D0%B0+%D0%B4%D0%BB%D1%8F+%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D1%8B%D1%85+%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86+usa)
 
-{{links}}
+* [Магнитный сепаратор gold mining](../33/%D0%9C%D0%B0%D0%B3%D0%BD%D0%B8%D1%82%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B5%D0%BF%D0%B0%D1%80%D0%B0%D1%82%D0%BE%D1%80%20gold%20mining.md)
+
+* [Принцип работы горизонтальной шаровой мельницы pdf](../31/%D0%9F%D1%80%D0%B8%D0%BD%D1%86%D0%B8%D0%BF%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D1%8B%20%D0%B3%D0%BE%D1%80%D0%B8%D0%B7%D0%BE%D0%BD%D1%82%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B%20pdf.md)
+
+* [Дробилка Производитель badarpur](../35/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%20badarpur.md)
+
+* [sr Каменная дробилка в Гунтуре](../33/sr%20%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B2%20%D0%93%D1%83%D0%BD%D1%82%D1%83%D1%80%D0%B5.md)
+
+* [Как построить свой собственный молотковая дробилка](../31/%D0%9A%D0%B0%D0%BA%20%D0%BF%D0%BE%D1%81%D1%82%D1%80%D0%BE%D0%B8%D1%82%D1%8C%20%D1%81%D0%B2%D0%BE%D0%B9%20%D1%81%D0%BE%D0%B1%D1%81%D1%82%D0%B2%D0%B5%D0%BD%D0%BD%D1%8B%D0%B9%20%D0%BC%D0%BE%D0%BB%D0%BE%D1%82%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [m p sanik coal mines limited Угольный блок amelia singrauli](../33/m%20p%20sanik%20coal%20mines%20limited%20%D0%A3%D0%B3%D0%BE%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%B1%D0%BB%D0%BE%D0%BA%20amelia%20singrauli.md)

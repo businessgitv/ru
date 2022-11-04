@@ -411,4 +411,14 @@ Schenck Process Holding GmbH (3) Sefar (1) Shanghai Joyal Machinery Co..Экра
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=schenck+process+austral+%D0%92%D0%B8%D0%B1%D1%80%D0%B0%D1%86%D0%B8%D0%BE%D0%BD%D0%BD%D1%8B%D0%B5+%D1%8D%D0%BA%D1%80%D0%B0%D0%BD%D1%8B)
 
-{{links}}
+* [ppts of stone crushing](../31/ppts%20of%20stone%20crushing.md)
+
+* [Каменные шары для продажи](../33/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D1%8B%D0%B5%20%D1%88%D0%B0%D1%80%D1%8B%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8.md)
+
+* [Мощность двигателя и количество оборотов в минуту для дробилки](../32/%D0%9C%D0%BE%D1%89%D0%BD%D0%BE%D1%81%D1%82%D1%8C%20%D0%B4%D0%B2%D0%B8%D0%B3%D0%B0%D1%82%D0%B5%D0%BB%D1%8F%20%D0%B8%20%D0%BA%D0%BE%D0%BB%D0%B8%D1%87%D0%B5%D1%81%D1%82%D0%B2%D0%BE%20%D0%BE%D0%B1%D0%BE%D1%80%D0%BE%D1%82%D0%BE%D0%B2%20%D0%B2%20%D0%BC%D0%B8%D0%BD%D1%83%D1%82%D1%83%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [Сланцевый желоб xiangtan](../34/%D0%A1%D0%BB%D0%B0%D0%BD%D1%86%D0%B5%D0%B2%D1%8B%D0%B9%20%D0%B6%D0%B5%D0%BB%D0%BE%D0%B1%20xiangtan.md)
+
+* [Бизнес-модели для дробилки](../33/%D0%91%D0%B8%D0%B7%D0%BD%D0%B5%D1%81-%D0%BC%D0%BE%D0%B4%D0%B5%D0%BB%D0%B8%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [jumbo screen smb](../33/jumbo%20screen%20smb.md)

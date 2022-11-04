@@ -380,4 +380,14 @@ CS Конусная Дробилка;.2012 года и конусная дроб
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=ft+cs+%D0%9A%D0%BE%D0%BD%D1%83%D1%81%D0%BD%D0%B0%D1%8F+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0+%D0%93%D0%B0%D0%B1%D0%B0%D1%80%D0%B8%D1%82%D0%BD%D1%8B%D0%B5+%D1%80%D0%B0%D0%B7%D0%BC%D0%B5%D1%80%D1%8B)
 
-{{links}}
+* [Отходы дробилки Сколько](../35/%D0%9E%D1%82%D1%85%D0%BE%D0%B4%D1%8B%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%A1%D0%BA%D0%BE%D0%BB%D1%8C%D0%BA%D0%BE.md)
+
+* [Шаогуаньская дробилка для тяжелых машин](../31/%D0%A8%D0%B0%D0%BE%D0%B3%D1%83%D0%B0%D0%BD%D1%8C%D1%81%D0%BA%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D1%82%D1%8F%D0%B6%D0%B5%D0%BB%D1%8B%D1%85%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD.md)
+
+* [piezas maquina de trituracion de impacto](../32/piezas%20maquina%20de%20trituracion%20de%20impacto.md)
+
+* [Шлифовальный вертикальный бетон](../32/%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%B2%D0%B5%D1%80%D1%82%D0%B8%D0%BA%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%B1%D0%B5%D1%82%D0%BE%D0%BD.md)
+
+* [Работа в рок-дробилке](../33/%D0%A0%D0%B0%D0%B1%D0%BE%D1%82%D0%B0%20%D0%B2%20%D1%80%D0%BE%D0%BA-%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B5.md)
+
+* [Шлифовальный станок cabuchon sk](../34/%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20cabuchon%20sk.md)

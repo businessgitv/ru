@@ -410,4 +410,14 @@ Jul 04,2017 · Многоканальный драйвер шаговых дв�
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%A0%D1%83%D0%BA%D0%BE%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%BE+%D1%81%D1%82%D0%B0%D0%BD%D0%BA%D0%B0+becker+mill)
 
-{{links}}
+* [shanghai shenbang group co ltd](../32/shanghai%20shenbang%20group%20co%20ltd.md)
+
+* [Схема подключения дробильной установки](../32/%D0%A1%D1%85%D0%B5%D0%BC%D0%B0%20%D0%BF%D0%BE%D0%B4%D0%BA%D0%BB%D1%8E%D1%87%D0%B5%D0%BD%D0%B8%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B8.md)
+
+* [para que se utiliza la pirita](../33/para%20que%20se%20utiliza%20la%20pirita.md)
+
+* [Сила дробления земли](../32/%D0%A1%D0%B8%D0%BB%D0%B0%20%D0%B4%D1%80%D0%BE%D0%B1%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F%20%D0%B7%D0%B5%D0%BC%D0%BB%D0%B8.md)
+
+* [Группа pangang rutile sand](../31/%D0%93%D1%80%D1%83%D0%BF%D0%BF%D0%B0%20pangang%20rutile%20sand.md)
+
+* [Добыча гранита в Индонезии](../32/%D0%94%D0%BE%D0%B1%D1%8B%D1%87%D0%B0%20%D0%B3%D1%80%D0%B0%D0%BD%D0%B8%D1%82%D0%B0%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%BE%D0%BD%D0%B5%D0%B7%D0%B8%D0%B8.md)

@@ -391,4 +391,14 @@ gaji pegawai mine kaltim prima coal in africa.Coal Mining Kpc Sangatta Mogok Ker
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%A3%D0%B3%D0%BE%D0%BB%D1%8C+indo+strata)
 
-{{links}}
+* [Каменная дробилка Изин Райгад](../35/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%98%D0%B7%D0%B8%D0%BD%20%D0%A0%D0%B0%D0%B9%D0%B3%D0%B0%D0%B4.md)
+
+* [Золотодобывающая техника для продажи в Гане](../35/%D0%97%D0%BE%D0%BB%D0%BE%D1%82%D0%BE%D0%B4%D0%BE%D0%B1%D1%8B%D0%B2%D0%B0%D1%8E%D1%89%D0%B0%D1%8F%20%D1%82%D0%B5%D1%85%D0%BD%D0%B8%D0%BA%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8%20%D0%B2%20%D0%93%D0%B0%D0%BD%D0%B5.md)
+
+* [Корейский шлифовальный станок](../35/%D0%9A%D0%BE%D1%80%D0%B5%D0%B9%D1%81%D0%BA%D0%B8%D0%B9%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA.md)
+
+* [Мини-шаровая мельница](../34/%D0%9C%D0%B8%D0%BD%D0%B8-%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0.md)
+
+* [msha approved portable equipment electrical](../33/msha%20approved%20portable%20equipment%20electrical.md)
+
+* [Подержанные jaw stone crushers 20 ton](../31/%D0%9F%D0%BE%D0%B4%D0%B5%D1%80%D0%B6%D0%B0%D0%BD%D0%BD%D1%8B%D0%B5%20jaw%20stone%20crushers%2020%20ton.md)

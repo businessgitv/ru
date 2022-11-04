@@ -411,4 +411,14 @@ Used Дробилка Центробежная VSI ДЦ 1,6 crushers,At Mascus U
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%98%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D1%83%D0%B5%D0%BC%D0%B0%D1%8F+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0+b+series+vsi)
 
-{{links}}
+* [Карьерный агрегат в Китае](../33/%D0%9A%D0%B0%D1%80%D1%8C%D0%B5%D1%80%D0%BD%D1%8B%D0%B9%20%D0%B0%D0%B3%D1%80%D0%B5%D0%B3%D0%B0%D1%82%20%D0%B2%20%D0%9A%D0%B8%D1%82%D0%B0%D0%B5.md)
+
+* [Производительность ударных дробилок](../33/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D0%BE%D1%81%D1%82%D1%8C%20%D1%83%D0%B4%D0%B0%D1%80%D0%BD%D1%8B%D1%85%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BE%D0%BA.md)
+
+* [j 1175 Щековая дробилка menual](../32/j%201175%20%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20menual.md)
+
+* [Дробилки Китай Контакты](../33/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%9A%D0%B8%D1%82%D0%B0%D0%B9%20%D0%9A%D0%BE%D0%BD%D1%82%D0%B0%D0%BA%D1%82%D1%8B.md)
+
+* [Руководство для мобильных дробилок zenith](../35/%D0%A0%D1%83%D0%BA%D0%BE%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%BE%20%D0%B4%D0%BB%D1%8F%20%D0%BC%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D1%85%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BE%D0%BA%20zenith.md)
+
+* [Рок-дробилка для продажи в Техасе](../33/%D0%A0%D0%BE%D0%BA-%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8%20%D0%B2%20%D0%A2%D0%B5%D1%85%D0%B0%D1%81%D0%B5.md)

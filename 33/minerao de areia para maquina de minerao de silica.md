@@ -411,4 +411,14 @@ minerao e processamento de silica maquina de minerao de areia local Nilpolis Dep
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=minerao+de+areia+para+maquina+de+minerao+de+silica)
 
-{{links}}
+* [Последние новости в горнодобывающем секторе Зимбабве](../34/%D0%9F%D0%BE%D1%81%D0%BB%D0%B5%D0%B4%D0%BD%D0%B8%D0%B5%20%D0%BD%D0%BE%D0%B2%D0%BE%D1%81%D1%82%D0%B8%20%D0%B2%20%D0%B3%D0%BE%D1%80%D0%BD%D0%BE%D0%B4%D0%BE%D0%B1%D1%8B%D0%B2%D0%B0%D1%8E%D1%89%D0%B5%D0%BC%20%D1%81%D0%B5%D0%BA%D1%82%D0%BE%D1%80%D0%B5%20%D0%97%D0%B8%D0%BC%D0%B1%D0%B0%D0%B1%D0%B2%D0%B5.md)
+
+* [Агрегат и обработка песка](../35/%D0%90%D0%B3%D1%80%D0%B5%D0%B3%D0%B0%D1%82%20%D0%B8%20%D0%BE%D0%B1%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%BF%D0%B5%D1%81%D0%BA%D0%B0.md)
+
+* [Цена 150 x 250 Щековая дробилка](../33/%D0%A6%D0%B5%D0%BD%D0%B0%20150%20x%20250%20%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Шлифовальный станок Гранит](../34/%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20%D0%93%D1%80%D0%B0%D0%BD%D0%B8%D1%82.md)
+
+* [ta duct цементного завода](../32/ta%20duct%20%D1%86%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4%D0%B0.md)
+
+* [Камень измельчения 250 т  ч](../35/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D1%8C%20%D0%B8%D0%B7%D0%BC%D0%B5%D0%BB%D1%8C%D1%87%D0%B5%D0%BD%D0%B8%D1%8F%20250%20%D1%82%20%20%D1%87.md)

@@ -410,4 +410,14 @@ Exemptions — Sales of and labor and service charges for mining,sorting,crushin
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=moi+quarry+public+labor)
 
-{{links}}
+* [Кварцевая дробилка США](../31/%D0%9A%D0%B2%D0%B0%D1%80%D1%86%D0%B5%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%A1%D0%A8%D0%90.md)
+
+* [process mining company Малайзия](../34/process%20mining%20company%20%D0%9C%D0%B0%D0%BB%D0%B0%D0%B9%D0%B7%D0%B8%D1%8F.md)
+
+* [Производство дробилок в Пакистане](../35/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%BE%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BE%D0%BA%20%D0%B2%20%D0%9F%D0%B0%D0%BA%D0%B8%D1%81%D1%82%D0%B0%D0%BD%D0%B5.md)
+
+* [harga stone crusher Индия](../32/harga%20stone%20crusher%20%D0%98%D0%BD%D0%B4%D0%B8%D1%8F.md)
+
+* [Классификация и типы железных руд](../33/%D0%9A%D0%BB%D0%B0%D1%81%D1%81%D0%B8%D1%84%D0%B8%D0%BA%D0%B0%D1%86%D0%B8%D1%8F%20%D0%B8%20%D1%82%D0%B8%D0%BF%D1%8B%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D1%8B%D1%85%20%D1%80%D1%83%D0%B4.md)
+
+* [coal india limited Шахты с дробильными установками](../32/coal%20india%20limited%20%D0%A8%D0%B0%D1%85%D1%82%D1%8B%20%D1%81%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%BC%D0%B8%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B0%D0%BC%D0%B8.md)

@@ -411,4 +411,14 @@ Bosch Mesin Gerinda Lurus Listrik GGS 5000 Profesional di Jual dg Harga Murah.Mo
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=mesin+gerinda+g70+ah)
 
-{{links}}
+* [Завод Габро Дробилки в Уае](../31/%D0%97%D0%B0%D0%B2%D0%BE%D0%B4%20%D0%93%D0%B0%D0%B1%D1%80%D0%BE%20%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%B2%20%D0%A3%D0%B0%D0%B5.md)
+
+* [pioner Трековые дробилки modle 4240 для продажи](../33/pioner%20%D0%A2%D1%80%D0%B5%D0%BA%D0%BE%D0%B2%D1%8B%D0%B5%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20modle%204240%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8.md)
+
+* [shanghai shibang machinery co ltd Контакты](../33/shanghai%20shibang%20machinery%20co%20ltd%20%D0%9A%D0%BE%D0%BD%D1%82%D0%B0%D0%BA%D1%82%D1%8B.md)
+
+* [Машина для производства зеленого песка](../31/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%B0%20%D0%B7%D0%B5%D0%BB%D0%B5%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%BF%D0%B5%D1%81%D0%BA%D0%B0.md)
+
+* [Дробилка отходов Индия](../35/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%BE%D1%82%D1%85%D0%BE%D0%B4%D0%BE%D0%B2%20%D0%98%D0%BD%D0%B4%D0%B8%D1%8F.md)
+
+* [В Индии работают шлифовальные станки](../35/%D0%92%20%D0%98%D0%BD%D0%B4%D0%B8%D0%B8%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%B0%D1%8E%D1%82%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5%20%D1%81%D1%82%D0%B0%D0%BD%D0%BA%D0%B8.md)

@@ -241,4 +241,14 @@ Amarillo ( ˌ æ m ə ˈ r ɪ l oʊ AM ə RIL oh) is the 14th most populous city
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5+%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B8+%D0%B2+amarillo+tex)
 
-{{links}}
+* [Измельчительная дробилка серии pe из zenith mining](../35/%D0%98%D0%B7%D0%BC%D0%B5%D0%BB%D1%8C%D1%87%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D1%81%D0%B5%D1%80%D0%B8%D0%B8%20pe%20%D0%B8%D0%B7%20zenith%20mining.md)
+
+* [Мини-дробилка Цена дробилки vsi5x в Индонезии](../33/%D0%9C%D0%B8%D0%BD%D0%B8-%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%A6%D0%B5%D0%BD%D0%B0%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20vsi5x%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%BE%D0%BD%D0%B5%D0%B7%D0%B8%D0%B8.md)
+
+* [Индийский аттукальный шлифовальный камень](../32/%D0%98%D0%BD%D0%B4%D0%B8%D0%B9%D1%81%D0%BA%D0%B8%D0%B9%20%D0%B0%D1%82%D1%82%D1%83%D0%BA%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%BA%D0%B0%D0%BC%D0%B5%D0%BD%D1%8C.md)
+
+* [Переработка латеритной никелевой руды](../32/%D0%9F%D0%B5%D1%80%D0%B5%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%BB%D0%B0%D1%82%D0%B5%D1%80%D0%B8%D1%82%D0%BD%D0%BE%D0%B9%20%D0%BD%D0%B8%D0%BA%D0%B5%D0%BB%D0%B5%D0%B2%D0%BE%D0%B9%20%D1%80%D1%83%D0%B4%D1%8B.md)
+
+* [Пулеметная дробилка Нашики](../34/%D0%9F%D1%83%D0%BB%D0%B5%D0%BC%D0%B5%D1%82%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%9D%D0%B0%D1%88%D0%B8%D0%BA%D0%B8.md)
+
+* [Маленькая операция mining perlight](../34/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%B0%D1%8F%20%D0%BE%D0%BF%D0%B5%D1%80%D0%B0%D1%86%D0%B8%D1%8F%20mining%20perlight.md)

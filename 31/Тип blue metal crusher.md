@@ -410,4 +410,14 @@ Sudhakaran,VSC Blue metal crusher,Rohini Sadanam,Melamcode,Nemom Sudhakaran,VSC 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%A2%D0%B8%D0%BF+blue+metal+crusher)
 
-{{links}}
+* [Мобильная дробилка для железнодорожной инфраструктуры](../35/%D0%9C%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B4%D0%BE%D1%80%D0%BE%D0%B6%D0%BD%D0%BE%D0%B9%20%D0%B8%D0%BD%D1%84%D1%80%D0%B0%D1%81%D1%82%D1%80%D1%83%D0%BA%D1%82%D1%83%D1%80%D1%8B.md)
+
+* [Стоимость питателя гризли](../31/%D0%A1%D1%82%D0%BE%D0%B8%D0%BC%D0%BE%D1%81%D1%82%D1%8C%20%D0%BF%D0%B8%D1%82%D0%B0%D1%82%D0%B5%D0%BB%D1%8F%20%D0%B3%D1%80%D0%B8%D0%B7%D0%BB%D0%B8.md)
+
+* [Цементная смесь цементного цемента в Индоре](../32/%D0%A6%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%D0%BD%D0%B0%D1%8F%20%D1%81%D0%BC%D0%B5%D1%81%D1%8C%20%D1%86%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%D0%BD%D0%BE%D0%B3%D0%BE%20%D1%86%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%D0%B0%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%BE%D1%80%D0%B5.md)
+
+* [Машина шлифовальной шаровой мельницы](../35/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B.md)
+
+* [Карьер в Восточном Мысе](../34/%D0%9A%D0%B0%D1%80%D1%8C%D0%B5%D1%80%20%D0%B2%20%D0%92%D0%BE%D1%81%D1%82%D0%BE%D1%87%D0%BD%D0%BE%D0%BC%20%D0%9C%D1%8B%D1%81%D0%B5.md)
+
+* [Малый промывочный завод mimimg](../35/%D0%9C%D0%B0%D0%BB%D1%8B%D0%B9%20%D0%BF%D1%80%D0%BE%D0%BC%D1%8B%D0%B2%D0%BE%D1%87%D0%BD%D1%8B%D0%B9%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4%20mimimg.md)
